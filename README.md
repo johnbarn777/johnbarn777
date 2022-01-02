@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @johnbarn777
+- 👀 I’m interested in anything that has a microchip
+- 🌱 I’m currently learning Computing Science at SFU
+- 📫 How to reach me johnbarn2409@gmail.com
